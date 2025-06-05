@@ -12,7 +12,9 @@ fandoms im in are ; rblx myth, 4saken, osc, dw
 
 ((4 dw i dont play it a lot anymore tho and im slightly scared of interacting with the fandom))
 
-im mostly with my friends but its rare if im by myself ?
+im mostly with my friends but its rare-ish if im by myself ?
+
+i am hypersensitive, so be careful pls! and i wont always be able to tell if i do something wrong,,
 <!--
 **AMA-ZOOK/AMA-ZOOK** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
