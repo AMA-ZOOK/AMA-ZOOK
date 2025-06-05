@@ -1,6 +1,6 @@
 i allow c+h sometimes, but if dniuf or dniuid is in my name please dont !
 
-ask if u want to take inspo from my skins !
+i dont allow inspo for my skins, srry
 
 im usually at osc or forsaken area,, but sometimes i could js be at random places by myself or with a friend /w friends
 
