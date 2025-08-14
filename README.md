@@ -1,4 +1,4 @@
-i allow c+h sometimes, but if dniuf or dniuid is in my name please dont !
+i allow c+h espescially from my close friends but idm if a random person wants to i coul jusy be a bit awkward 
 
 i dont allow inspo for my skins, srry
 
@@ -6,7 +6,7 @@ im usually at osc or forsaken area,, but sometimes i could js be at random place
 
 pls dont make grape jokes around me.. its js gross and makes me uncomfortable in the first place
 
-idm if u want to int with me just know i could be awkward sometimes and i get scared too sometimes - ,,,
+idm if u want to int with me just know i could be awkward sometimes and i get scared too sometimes but it depends how comf i am with u
 
 fandoms im in are ; rblx myth, 4saken, osc, dw
 
