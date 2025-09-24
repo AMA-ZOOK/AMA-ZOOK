@@ -10,8 +10,11 @@ fandoms i love / are in; 4saken , hwwhp, osc (dw is cool but i dont rlly int wit
 
 im mostly with my friends but its rare-ish if im by myself ? depends
       ﹙   ⠀︵⠀⠀⊹⠀
+
 i am hypersensitive, so be careful pls! and i wont always be able to tell if i do something wrong,,
 ⠀⠀⠀⠀ ࣪       ︵ֺ︵  ㅤ ㅤ𝜚      ۪ ⠀⠀ ⪩⪨
+
+also ! i need to rmk my strawpage bc i lost all access to editing it  :(  so if u sent any art i may have not seen it and i apologise abt that ! :((((
 <!--
 **AMA-ZOOK/AMA-ZOOK** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
