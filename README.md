@@ -16,7 +16,7 @@ i am hypersensitive, so be careful pls! and i wont always be able to tell if i d
 
 also ! i need to rmk my strawpage bc i lost all access to editing it  :(  so if u sent any art i may have not seen it and i apologise abt that ! :((((
 
-https://cdn.discordapp.com/attachments/1331713419505831969/1420309916903673916/IMG_0247.webp?ex=68d4ee30&is=68d39cb0&hm=8424b0b45040bb25be73fe20577a340b6bc2d2ac5feb0d3643c824a499a4014b&
+pr3typriincess kin   ,  contractee kin
 <!--
 **AMA-ZOOK/AMA-ZOOK** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
