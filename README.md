@@ -1,18 +1,14 @@
-i allow c+h espescially from my close friends but idm if a random person wants to i coul jusy be a bit awkward 
+i allow c+h ! it makes me vry happy infact ,,especially from friends ( yes randos can cuddl me i guess ) !
 
-i dont allow inspo for my skins, srry
+u can take TINY inspo from my skins ^__^
 
-im usually at osc or forsaken area,, but sometimes i could js be at random places by myself or with a friend /w friends
+im usually at osc or 4saken area,, but sometimes i could js be at random places by myself or with a friend /w friends
 
-pls dont make grape jokes around me.. its js gross and makes me uncomfortable in the first place
+u can int with me ! idm at all but i could get awkward depends tho
 
-idm if u want to int with me just know i could be awkward sometimes and i get scared too sometimes but it depends how comf i am with u
+fandoms i love / are in; 4saken , hwwhp, osc (dw is cool but i dont rlly int with the fandom)
 
-fandoms im in are ; rblx myth, 4saken, osc, dw
-
-((4 dw i dont play it a lot anymore tho and im slightly scared of interacting with the fandom))
-
-im mostly with my friends but its rare-ish if im by myself ?
+im mostly with my friends but its rare-ish if im by myself ? depends
 
 i am hypersensitive, so be careful pls! and i wont always be able to tell if i do something wrong,,
 <!--
