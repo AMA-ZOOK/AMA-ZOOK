@@ -19,6 +19,8 @@ also ! i need to rmk my strawpage bc i lost all access to editing it  :(  so if 
 pr3typriincess kin   ,  contractee kin
 
 i used to be rlly uncomf with doubles interacting but idm as much anymore!
+
+![image alt](https://github.com/AMA-ZOOK/AMA-ZOOK/blob/21faabca66710d049569e988f200d59128110461/IMG_7976.jpeg)
 <!--
 **AMA-ZOOK/AMA-ZOOK** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
