@@ -6,7 +6,7 @@ im usually at osc or 4saken area,, but sometimes i could js be at random places 
 
 u can int with me ! idm at all but i could get awkward depends tho
 
-fandoms i love / are in; 4saken , hwwhp, osc (dw is cool but i dont rlly int with the fandom)
+fandoms i love / are in; 4saken , hwwhp, osc (dw is cool but i dont rlly int with the fandom unless ur my friend)
 
 im mostly with my friends but its rare-ish if im by myself ? depends
       ﹙   ⠀︵⠀⠀⊹⠀
