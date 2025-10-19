@@ -16,9 +16,9 @@ i am hypersensitive, so be careful pls! and i wont always be able to tell if i d
 
 also ! i need to rmk my strawpage bc i lost all access to editing it  :(  so if u sent any art i may have not seen it and i apologise abt that ! :((((
 
-pr3typriincess kin   ,  contractee kin
+BIG BIG BIG... pr3typriincess kin. like i am literally her. you dont tell me otherwise   ,  contractee kin
 
-i used to be rlly uncomf with doubles interacting but idm as much anymore!
+if u kin pr3ty too pls iwc ! and dniuid
 
 ![image alt](https://github.com/AMA-ZOOK/AMA-ZOOK/blob/21faabca66710d049569e988f200d59128110461/IMG_7976.jpeg)
 <!--
