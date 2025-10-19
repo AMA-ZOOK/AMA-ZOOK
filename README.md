@@ -19,6 +19,7 @@ also ! i need to rmk my strawpage bc i lost all access to editing it  :(  so if 
 BIG BIG BIG... pr3typriincess kin. like i am literally her. you dont tell me otherwise   ,  contractee kin
 
 if u kin pr3ty too pls iwc ! and dniuid
+also... i do not support oryni.
 
 ![image alt](https://github.com/AMA-ZOOK/AMA-ZOOK/blob/21faabca66710d049569e988f200d59128110461/IMG_7976.jpeg)
 <!--
