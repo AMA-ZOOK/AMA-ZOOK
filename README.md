@@ -1,4 +1,4 @@
-𓏵  i allow c+h ! it makes me vry happy infact ,,especially from friends ( yes randos can cuddl me i guess ) !
+𓏵  i allow c+h ! it makes me vry happy infact ,,especially from friends ( yes random people can cuddle me i dont mind ) !
 
 u can take TINY inspo from my skins ^__^
       ﹙﹚ ⠀⊹⠀
